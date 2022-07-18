@@ -1,5 +1,5 @@
 ### Hola soy Agustina👋
-Tengo 19 años hice un curso en Henry🚀 full stack y estoy muy motivada ya que vengo de un secundario técnico especializado en Informática y Programación. 
+Tengo 20 años hice un curso en Henry🚀 full stack y estoy muy motivada ya que vengo de un secundario técnico especializado en Informática y Programación. 
 Siempre me gusto el tema de crear en desarrollo web.
 Tengo buena predisposición para trabajar en equipo e
 individualmente, con responsabilidad sobre las tareas asignadas.
