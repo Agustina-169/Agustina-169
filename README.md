@@ -18,6 +18,6 @@ problemas que puedan presentarse.
 -PostgreSQL.
 
 📍Buenos Aires, Argentina
-📨Gmail: ailenagustina169@gmail.com
+📨Gmail:  agustinaaquino871@gmail.com
 💼MI linkedin: /agustina-ailen-aquino/
 📲celular: 1134463683
